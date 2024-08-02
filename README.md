@@ -1,1 +1,0 @@
-# Automatic-Covid-safety-entrance
